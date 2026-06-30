@@ -149,7 +149,7 @@ For privacy questions, requests, or complaints, contact:
 
 Goldentree Jewels limited
 
-Email: info@goldentreejewels.com
+Email: jewelsgoldentree@gmail.com
 
 Website: https://goldentreejewels.com
 
